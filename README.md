@@ -1,4 +1,4 @@
-## Hi there👋, Myself Agrim Suryavanshi
+## Hi there👋, I'm Agrim Suryavanshi
 My upcoming projects would be visible here!!!
 
 <!--
